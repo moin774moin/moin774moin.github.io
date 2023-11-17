@@ -1,1 +1,1 @@
-# [[hsfootball.co](https://hsfootball.co/)]
+# [hsfootball.co](https://hsfootball.co/)
